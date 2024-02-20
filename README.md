@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning Web Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Just main me at vinaydishagat9971@gmail.com
+- 📫 How to reach me Just mail me at vinaydishagat9971@gmail.com
 - 😄 Pronouns: No Idea
 - ⚡ Fun fact: Hii it's me Vinay But you can call Me Flash
 
